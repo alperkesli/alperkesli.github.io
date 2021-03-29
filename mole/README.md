@@ -1,1 +1,0 @@
-# alperkesli.github.io
